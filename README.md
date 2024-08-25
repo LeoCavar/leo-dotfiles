@@ -1,3 +1,5 @@
 ## Desktop screenshot
 
-![image](https://github.com/user-attachments/assets/44abff29-0b81-4b97-9d22-d2c1a17dbd85)
+
+![Sun Aug 25 09:38:27 PM CEST 2024](https://github.com/user-attachments/assets/ddfa5e9c-8250-4613-81fd-5fdfc0abce2d)
+
